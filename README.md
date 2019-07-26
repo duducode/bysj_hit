@@ -13,4 +13,3 @@
 
 ![Image text](https://github.com/HuiyanWen/bysj_hit/blob/master/3.png)
 
-<br>更多内容详见论文，如有需要，欢迎联系1392936442@qq.com</br>
