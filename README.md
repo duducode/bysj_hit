@@ -9,7 +9,7 @@
 
 ![Image text](https://github.com/HuiyanWen/bysj_hit/blob/master/1.png)
 
-![Image text](https://github.com/HuiyanWen/bysj_hit/blob/master/2.png)
+![Image text](https://github.com/HuiyanWen/bysj_hit/blob/master/5.png)
 
-![Image text](https://github.com/HuiyanWen/bysj_hit/blob/master/3.png)
+![Image text](https://github.com/HuiyanWen/bysj_hit/blob/master/6.png)
 
